@@ -1,0 +1,1 @@
+"Canto" se refiere principalmente a la acción de producir sonidos melodiosos con la voz, un arte musical que puede integrar texto. También puede designar una sección de un poema épico o largo, así como la canto de las aves o la punta de un objeto. En un sentido más amplio, "canto" es la expresión de algo, ya sea un poema, una alabanza o un evento. 
